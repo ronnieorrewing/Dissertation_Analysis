@@ -1,1 +1,1 @@
-Data can be made available upon request to the researcher
+Data can be made available upon request to the researcher.
